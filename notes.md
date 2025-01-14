@@ -1,1 +1,1 @@
-Este es un documento compartido Barak
+Este es un documento compartido
