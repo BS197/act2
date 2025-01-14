@@ -1,1 +1,1 @@
-Este es un documento compartido Samuel
+Esto es un documento compartido
